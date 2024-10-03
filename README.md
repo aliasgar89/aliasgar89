@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Btech Computer Science Engineering
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me My instagram id hii_aliasgar
-- 😄 Pronouns: he
+- 😄 Pronouns: he,his
 - ⚡ you can contact me: aliasgarlohawala52@gmail.com
 
 <!---
